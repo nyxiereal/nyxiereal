@@ -1,3 +1,3 @@
-hi i use arch and code on my puter!!
+girl coding on her computer :3
 
 ![gh page stats](https://komarev.com/ghpvc/?username=nyxiereal)
