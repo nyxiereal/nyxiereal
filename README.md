@@ -1,4 +1,4 @@
-i code stuff that mostly sucks
+ts is ass, vscodr terminated
 
 https://nyx.fuckingbitch.eu
 
