@@ -1,5 +1,7 @@
-ts is ass, vscodr terminated
+i develop stuff that some people use
 
-https://nyx.meowery.eu/
+site - https://nyx.meowery.eu/
+
+pls donate on gh sponsors 🙏
 
 ![gh page stats](https://komarev.com/ghpvc/?username=nyxiereal)
